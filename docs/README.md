@@ -1,3 +1,3 @@
 # Instrukcja obsługi
 
-![Instrukcja](https://ebookpoint.pl/ksiazki/kot-w-domu-instrukcja-obslugi-barbara-sieradzan,e_14lm.htm)
+![Instrukcja](https://ecsmedia.pl/c/kot-w-domu-instrukcja-obslugi-b-iext109772122.jpg)
